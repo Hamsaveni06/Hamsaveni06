@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Hamsaveni T D
+Hi👋, I'm Hamsaveni T D
 
 
 ## 🌐 Socials:
